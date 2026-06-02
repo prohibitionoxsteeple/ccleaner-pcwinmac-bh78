@@ -1,4 +1,4 @@
-# 
+# Exclusivo CCleaner predefinições para Mac OS | Personalizado CCleaner predefinições para PC Windows. Com limitacao de taxa e automacao do sistema — otimizado para máximo desempenho em cada plataforma.
 
 
 
